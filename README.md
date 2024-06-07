@@ -1,1 +1,1 @@
-Python en 16 d'ias
+Python en 16 días
